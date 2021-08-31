@@ -1,5 +1,6 @@
-Privacy Policy
-I4CUS takes your privacy seriously. To better protect your privacy I4CUS provide this privacy policy notice explaining the way your personal information is collected and used.
+**Privacy Policy**
+
+I4CUS takes your privacy seriously. To better protect your privacy, I4CUS provides this privacy policy notice explaining the way your personal information is collected and used.
 
 
 Cookies
